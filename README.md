@@ -44,7 +44,7 @@ As a **project manager**, I led my team in building a robot, honing my **leaders
 
 ## 📧 Let's Connect  
 
-- 🌐 LinkedIn Profile: (#) *(https://www.linkedin.com/in/maher-mazen-almadani/)*  
+- 🌐 LinkedIn Profile: *(https://www.linkedin.com/in/maher-mazen-almadani/)*  
 - 📧 Email: [mrmaheralmadani@gmail.com]  
 
 ---
